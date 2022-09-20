@@ -1,2 +1,0 @@
-# Checkpoint
-Maximiliano Cabara Acuña
